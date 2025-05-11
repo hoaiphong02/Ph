@@ -1,3 +1,2 @@
 # Ph
-my wallpaper
-https://github.com/hoaiphong02/cuatui/issues/2#issue-1727567165
+https://github.com/user-attachments/assets/43cdaf55-78a2-4a32-be98-08af9bd5b3e8
